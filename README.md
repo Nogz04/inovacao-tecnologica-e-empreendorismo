@@ -1,1 +1,1 @@
-# inovacao-tecnologica-empreendorismo
+# Inovação Tecnológica e empreendedorismo
